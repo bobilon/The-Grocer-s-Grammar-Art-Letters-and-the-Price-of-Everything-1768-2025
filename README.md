@@ -1,0 +1,2 @@
+# The-Grocer-s-Grammar-Art-Letters-and-the-Price-of-Everything-1768-2025
+A grocer's-grammar reading of how art, letters, science, industry, education, and media braided at the Royal Academy in 1768, came apart policing one class boundary for two centuries, and hit a digital migration that dissolved the manufactured scarcity their whole apparatus of value ran on. The facts have owners. The braid is open.
